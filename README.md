@@ -1,1 +1,1 @@
-# PranjalKushwaha.github.i
+# PranjalKushwaha.github.io
